@@ -58,6 +58,10 @@ harsha khandelwal
 [Ritvi](ww.instagram.com/frenzy.wors)
 
 
+[Jyot](https://www.instagram.com/_its.jyot_/)
+
+
+
 
 
 [Github](https://github.com/Thepetapixl)
@@ -80,6 +84,10 @@ harsha khandelwal
 
 
 
+[Ritvi](ww.instagram.com/frenzy.wors)
+
+
+
 
 [Piyush Kumar].(www.instagram.com/piyushrock1710) 
 
@@ -94,4 +102,5 @@ harsha khandelwal
 changed
 
 [Ballistic Blue](www.instagram.com/ballistic_blue_)
+
 
